@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @anjachan also known as Budja on Chromie Craft
+- 👋 Hi, I’m @anjachan also known as CHECH
 - 👀 I’m interested in learning new FROGramming languages
-- 🌱 I’m currently learning Azeroth Core
+- 🌱 I’m currently learning CHECH
 - 💞️ I’m looking to collaborate on project with frog kun 😍😍😍
-- 📫 How to reach me: my discord-> Мрс. Вељковић#9096 or contact my frog manager
+- 📫 How to reach me: contact my frog manager
 
 <!---
 anjachan/anjachan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
